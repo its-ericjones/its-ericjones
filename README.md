@@ -1,4 +1,4 @@
-### Hey there 👋 I'm Eric 🤓
+### Hey there 👋 🤓
 
 🎓 After working for most of my 20s, I've decided to go back to college and finish getting my B.S. in Information Technology. 
 
